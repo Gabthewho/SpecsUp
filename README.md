@@ -1,0 +1,2 @@
+# SpecsUp
+Oo aadi kami 
